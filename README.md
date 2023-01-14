@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with [As of now no help is required](yet to be published)
 
-- 👨‍💻 All of my projects are available at [Projects are public but i regularly update them on linkdin hence you can see my all prjects there](Projects are public but i regularly update them on linkdin hence you can see my all prjects there)
+- 👨‍💻 All of my projects are available at [Projects are not public but i regularly update them on linkdin hence you can see my all prjects there](Projects are not public but i regularly update them on linkdin hence you can see my all prjects there)
 
 - 📝 I regularly write articles on [Linkdin](Linkdin)
 
